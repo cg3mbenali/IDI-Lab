@@ -1,0 +1,1 @@
+Esta fet l'exercici 1, i l'exercici 6(que es l'acumulacio dels demes)
